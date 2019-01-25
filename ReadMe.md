@@ -1,4 +1,7 @@
 
+i have a muji pen in red 
+
+
 He who does not travel, who does not read,
 
 who does not listen to music,
@@ -10,6 +13,8 @@ she who does not find grace in herself,
 dies slowly
 
 
+
+=======
 
 the sky is blue
 
